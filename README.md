@@ -1,1 +1,0 @@
-# obligatorisk-oppgave2
